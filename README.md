@@ -8,6 +8,6 @@
 - 😄 Pronouns: She/Her!
 - ⚡ Fun fact: My favorite color is green and my least favorite color is yellow. Tell me how that happened.
 
-__Yep!
+_Yep!
 
 Hobbies include: (WHEN I'M NOT STUDYING AND DOING HOMEWORK) Reading! Writing! Video Games! Being lazy! Eating! Cooking! Anything and everything a normal human does when they have free time!
